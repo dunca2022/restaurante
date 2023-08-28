@@ -1,4 +1,4 @@
-![Imagen de WhatsApp 2023-06-16 a las 21 12 57](https://github.com/dunca2022/duncan/assets/106892134/fc3f800e-5c44-4e24-b209-b6fbfa4dba17)
+https://gratis1041.wordpress.com/wp-admin/site-editor.php?postId=pub%2Faldente%2F%2Ffooter&postType=wp_template_part&canvas=edit
 
 
 
